@@ -1,4 +1,4 @@
-Privacy Policy for MoneyBit
+Privacy Policy for MoneyBit | Finans Cebinde
 
 Privacy Policy
 Last updated: April 29, 2025
