@@ -1,4 +1,4 @@
-Privacy Policy for MoneyBit | Finans Cebinde
+Privacy Policy for MoneyBit | Canlı Altın Döviz
 
 Privacy Policy
 Last updated: April 29, 2025
